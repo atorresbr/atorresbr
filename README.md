@@ -1,4 +1,4 @@
-### Baile de FAVELA 🍺 aqui é Brasil ✊
+### aqui é Brasil  🍺✊
 a casa do cachorro Caramelo 🦮
 
 
